@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Connectinglives
-- 👀 I’m interested in tech start ups
+- 👀 I’m interested in tech build ups
 - 🌱 I’m currently learning to advance my career in myself in project management, marketing and digital trading.
 - 💞️ I’m looking to collaborate on any thing tech innovation
 - 📫 How to reach me is via +2349039189225
