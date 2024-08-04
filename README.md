@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Connectinglives
 - 👀 I’m interested in tech build ups
-- 🌱 I’m currently learning to advance my career in project management, marketing and digital trading.
+- 🌱 I’m currently learning to advance my career in project management, marketing and digital assets trading.
 - 💞️ I’m looking to collaborate with any start up building innovative tech idea
 - 📫 How to reach me is via +2349039189225
 - 😄 Pronouns: Dr, Mr, He
